@@ -5,6 +5,10 @@
 
 Je suis Amandine, jeune bordelaise entrepreneuse. 
 
+Ma page facebook [facebook 400g](https://www.facebook.com/400gdebonheur/?ref=bookmarks)
+
+Ma page instagram [instagram 400g](https://www.instagram.com/400gdebonheur/)
+
 Bonjour,
 
 # La démarche
